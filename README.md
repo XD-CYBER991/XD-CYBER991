@@ -6,10 +6,6 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+EN-NUPUR+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+EN-NUPUR+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
 _________𝑵𝑨𝑴𝑬__𝐄𝐍 𝐍𝐔𝐏𝐔𝐑
 ________𝑭𝑹𝑶𝑴__𝑩𝑨𝑵𝑮𝑳𝑨𝑫𝑬𝑯_
-________𝑵𝑼𝑴𝑩𝑬𝑹_𝟎𝟏𝟖𝟑𝟎𝟕𝟒𝟑𝟏𝟐𝟐
-________𝑰𝑴𝑶_𝟎𝟏𝟖𝟑𝟎𝟕𝟒𝟑𝟏𝟐𝟐
-________𝑾𝑶𝑹𝑲__𝑷𝒀𝑻𝑯𝑶𝑵
-________𝑿𝑫 𝑪𝒀𝑩𝑬𝑹𝟗𝟗𝟏_𝑪𝒀𝑩𝑬𝑹_𝑯𝑨𝑪𝑲𝑰𝑵𝑮
 <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
 
 </h3>
